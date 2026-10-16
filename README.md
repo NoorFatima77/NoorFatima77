@@ -14,7 +14,3 @@ Content & Design: Canva, Content Strategy, Social Media Management
 
  Featured Projects
 Check out my pinned repositories below.
-
- Let's Connect
- LinkedIn: [add your link]
- Open to freelance work and collaborations
